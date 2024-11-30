@@ -5,7 +5,7 @@ lampe luminotherapie https://www.amazon.ca/-/fr/OYADISIIOP-luminoth%C3%A9rapie-t
 
 lampe pc bureau : https://www.amazon.ca/gp/aw/d/B08DKQ3JG1/?_encoding=UTF8&pd_rd_plhdr=t&aaxitk=ef42d455731c1dfb59016c8cb3bb3a89&hsa_cr_id=1301731330401&qid=1733004932&sr=1-1-9e67e56a-6f64-441f-a281-df67fc737124&ref_=sbx_be_s_sparkle_lsi4d_asin_0_img&pd_rd_w=O6Snc&content-id=amzn1.sym.b63e1afd-fa7d-4ee5-8745-6f3b9e8da6bd%3Aamzn1.sym.b63e1afd-fa7d-4ee5-8745-6f3b9e8da6bd&pf_rd_p=b63e1afd-fa7d-4ee5-8745-6f3b9e8da6bd&pf_rd_r=XNTJ2F9EBNVV616HG49B&pd_rd_wg=UsPiF&pd_rd_r=d4b7484d-5fd3-41fa-bcc9-018165359226&th=1
 
-chandelles (parfumee ou non parfumee)
+bougies (parfumee ou non parfumee)
 
 
 
