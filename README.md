@@ -20,6 +20,8 @@ lego (surprenez-nous)
 
 jeux de societe hues and cues  https://www.amazon.ca/-/fr/USAOPOLY-devinettes-couleurs-Connectez-ensemble/dp/B084D2XQ9F?th=1
 
+douillette blanche lit king fluffy (comme un nuage pas comme du poile)
+
 ## Cadeau Barney
 Gros os
 
